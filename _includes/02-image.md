@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Image of Yaktocat](F:\FATE系列\间桐樱图集\官图及相似风格(70)\Konachan.com - 65854 dark_matou_sakura fate_(series) fate_stay_night fate_unlimited_codes matou_sakura.jpg)
